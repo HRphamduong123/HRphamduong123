@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HRphamduong123
+- 👀 I’m interested in Badlanders
+- 🌱 I’m currently learning how to use Discord
+- 📫 How to reach me: tiktok.com/@ph.2k3_bqp
